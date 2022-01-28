@@ -9,7 +9,7 @@
 - Hyouka
 - Oregairu
 
-# Some of the I've played
+# Some of the games I've played
 - Prince of Persia
 - God of war
 - Street fighter
